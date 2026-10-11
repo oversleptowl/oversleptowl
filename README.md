@@ -1,20 +1,5 @@
-## 
-So whenever,
+## W𝒉𝒆𝒏 𝒍𝒊𝒇𝒆 𝒈𝒊𝒗𝒆𝒔 𝒚𝒐𝒖 𝒕𝒂𝒏𝒈𝒆𝒓𝒊𝒏𝒆, 𝒋𝒖𝒔𝒕 𝒂𝒑𝒑𝒓𝒆𝒄𝒊𝒂𝒕𝒆 𝒊𝒕.
 
-you ask me 
-
-again
-
-
-
-
-How I feel
-
-
-Please remember
-
-
-My answer is you.
 
 <img width="578" height="760" alt="714190f48a4151869f57178d7c4f5e28" src="https://github.com/user-attachments/assets/f8c8e377-690b-44c2-ac1e-95052798f931" />
 <img width="500" height="290" alt="tải xuống" src="https://github.com/user-attachments/assets/0d528b6f-c73b-49cb-8c81-22faac69c524" />
